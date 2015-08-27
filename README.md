@@ -3,4 +3,4 @@ Creating repository
 
 Hello Class Of Humans
 
-Bettye is here and im very excited about starting and finsihing the step class.
+Bettye is here and im very excited about starting and finsihing the step class. Love the skin you in!
